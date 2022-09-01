@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning masters
 - 💞️ I’m looking to collaborate on leaders
-- 📫  reach me on instagram!!
+- 📫  reach me on blesselsunny@gmail.com!
 
 <!---
 besunny95/besunny95 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
